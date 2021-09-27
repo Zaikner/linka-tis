@@ -13,6 +13,6 @@ kolko kamenov mnisi prekladaju...
 Nas tim tvoria clenovia:
 
 1. Patrik Modrovský
-2.
+2. Filip Zaikner
 3.
 4.
