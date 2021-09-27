@@ -14,5 +14,5 @@ Nas tim tvoria clenovia:
 
 1. Patrik Modrovský
 2. Filip Zaikner
-3.
 4.
+3. 
