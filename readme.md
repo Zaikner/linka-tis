@@ -15,4 +15,4 @@ Nas tim tvoria clenovia:
 1. Patrik Modrovský
 2. Filip Zaikner
 3. Martina Repiská
-4.
+4. Natália Macková
